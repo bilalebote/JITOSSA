@@ -1,4 +1,4 @@
-<img src="https://telegra.ph/file/74d3805aadcd4abcb1c8b.jpg" alt="jessimd" width="1280"/>
+<img src="https://www2.0zz0.com/2025/09/01/07/992745514.png" alt="jessimd" width="1280"/>
 </p>
 
 
